@@ -6,7 +6,7 @@
 
 **3. the model is limited to BSE NASDAQ & Cryptocurrency Market with further scope and expansion into various markets**
 
-**4. 
+ 
 
 
 
